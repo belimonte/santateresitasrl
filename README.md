@@ -1,4 +1,4 @@
-# Saanta Teresita S.R.L.
+# Santa Teresita S.R.L.
 Distribuidora Santa Teresita SRL
-Guteneberg 2476 - Corrientes
+Gutenberg 2476 - Corrientes
 Contacto: administracion-formosa@santateresitasrl.com.ar
